@@ -1,16 +1,13 @@
-## Hi there 👋
+## Yanni Sabrina Brito Gonclves ## 
 
-<!--
-**yannigoncalves-dev/yannigoncalves-dev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+_Sou uma garota muito reflexitiva e curiosa, vezes preguiçosa mas também depende do dia_
 
-Here are some ideas to get you started:
+~~Intituição de ensino no curso de Exatas~~ 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Colégio Instituto de Educação Cesar Pietro Martinez
+
+Terminar os estudos e fazer  faculdade de medicina ou Direito 
+
+Yanni.goncalves@escola.pr.gov.br
+
+Incendeie o eu coração- Rengoku 
